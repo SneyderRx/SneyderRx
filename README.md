@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **ESneyder1314@gmail.com**
 
-- 📄 Know about my experiences [I've done a few web and soft skills courses](I've done a few web and soft skills courses)
+- 📄 Know about my experiences I've done a few web and soft skills courses.
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
